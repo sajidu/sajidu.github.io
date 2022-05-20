@@ -1,2 +1,0 @@
-# sajidu.github.io
-Blog
